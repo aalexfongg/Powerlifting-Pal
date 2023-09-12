@@ -1,1 +1,1 @@
-![](images/Powerlifting-Pal.png)
+![](images/Updated-Powerlifting-Pal.png)
